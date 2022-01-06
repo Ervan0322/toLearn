@@ -1,1 +1,1 @@
-# Learn for evertying in Web
+# Learn for everything in Web
